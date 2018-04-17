@@ -1,1 +1,0 @@
-# referentiel_smg
